@@ -1,16 +1,34 @@
-## Hi there 👋
 
-<!--
-**foreverpureandsweet/foreverpureandsweet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+ (🍮)  molly ⸝⸝ 14 
+ 
+ ಄ esfj  .  2w3  . sanguine-phlegematic
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ᛝ ᠌riddle & nagisa oshi ::  typology & visual novel nerd
+
+
+
+
+
+
+
+
+
+
+                                         
+
+
+
+
+
+
+
+
+
+
+i hope epel burns
+
+
+
+<img width="562" height="504" alt="subreddit-emojis-from-characters-sprites-v0-vmqs9n339xeb1" src="https://github.com/user-attachments/assets/a5baff60-1d52-4e00-85c3-de30b40fa404" />
+
