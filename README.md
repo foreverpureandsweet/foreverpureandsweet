@@ -6,6 +6,7 @@
 
  ᛝ ᠌nagisa momoe & dreamjelly cookie oshi ::  typology & visual novel nerd
 
+(w2i, i do c+h if it's in my name ^_^)
 
 
 
