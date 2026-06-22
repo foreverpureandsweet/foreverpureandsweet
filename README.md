@@ -1,11 +1,9 @@
 
+(🍮) molly ⸝⸝ 14
 
- (🍮)  molly ⸝⸝ 14 
- 
- ಄ esfj  .  2w3  . sanguine-phlegematic
+಄ esfj . 2w3 . sanguine-dom
 
- ᛝ ᠌nagisa momoe & dreamjelly cookie oshi ::  typology & visual novel nerd
-
+ᛝ ᠌nagisa momoe kamioshi :: typology & visual novel nerd
 (w2i, i do c+h if it's in my name ^_^)
 
 
