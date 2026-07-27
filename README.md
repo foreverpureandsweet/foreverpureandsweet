@@ -1,11 +1,14 @@
+ᛝ  ⸝⸝  @ molly  ۫  ⊹    ࣪  choerry stan 🦇
+಄  they ; them  ⋮  girlflux  ꒰ 🪽 ꒱    
+ 
+゛ ⸝⸝.ᐟ⋆ my typology :
+ 📨  ◠◠    ese     :   2w3
+ sanguine  ˙  ִ ⑅      ˖    sp/sx 279
 
-(🍮) molly ⸝⸝ 14
+۫ ׅ my interests are ::
+     pmmm , dol , vns , precure , pripara && , kpop !! 𓈈 ﹒ 𖣠 
 
-಄ esfj . 2w3 . sanguine-dom
-
-ᛝ ᠌nagisa momoe kamioshi :: typology & visual novel nerd
-(w2i, i do c+h if it's in my name ^_^)
-
+nagisa momoe hater = DNI
 
 
 
