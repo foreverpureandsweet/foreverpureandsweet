@@ -1,4 +1,4 @@
-ᛝ  ⸝⸝  @ molly  ۫  ⊹    ࣪  choerry stan 🦇
+ᛝ  ⸝⸝  @ yuuna  ۫  ⊹    ࣪  choerry stan 🦇
 ಄  they ; them  ⋮  girlflux  ꒰ 🪽 ꒱    
  
 ゛ ⸝⸝.ᐟ⋆ my typology :
@@ -9,7 +9,6 @@
      pmmm , dol , vns , precure , pripara && , kpop !! 𓈈 ﹒ 𖣠 
 
 nagisa momoe hater = DNI
-
 
 
 
